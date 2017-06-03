@@ -12,4 +12,4 @@
 
 ❤你是我的感动。
 
-                 ❤ http://lovejiani.duapp.com/
+                 ❤ https://caizy1709.github.io/lovelina/
